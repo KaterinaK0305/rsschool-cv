@@ -3,7 +3,7 @@
 **Name**  *Korevko Ekaterina*
 
 **Contacts**
-- telephone number: *+375445839005*
+- telephone number: *375445839005*
 - email : *katerinakorevko@gmail.com*
 
 **Education** *BSEU, Faculty of Finance and Credit, specialization banking*
