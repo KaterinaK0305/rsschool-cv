@@ -9,3 +9,5 @@
 **Education** _BSEU, Faculty of Finance and Credit, specialization banking_
 
 **Work experience** _Over 8 years of experience in retail bank lending at various stage_
+
+**Languages** _English A2_
